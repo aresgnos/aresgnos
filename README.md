@@ -10,7 +10,6 @@
 <br>
 <br>
 
-<br>
 ![footer-02](https://user-images.githubusercontent.com/95726560/205069990-eb210b5d-2291-4fd7-ad1c-7ce7e6b6f720.jpg)
 
 
