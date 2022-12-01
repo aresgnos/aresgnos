@@ -1,4 +1,4 @@
-![header-01](https://user-images.githubusercontent.com/95726560/205069981-385d7607-c2a0-4fc6-b352-79cf7c0c1e42.jpg)
+![header-01-02](https://user-images.githubusercontent.com/95726560/205074922-2bdfa65d-1954-444e-ae39-e2a4a0580898.jpg)
 
 ### 💪 Studying
 
